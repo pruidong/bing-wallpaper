@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-09 | [The Cathedral of Florence, Italy (© Alexander Baert/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.FlorenceAerial_EN-US1751882328_UHD.jpg) 
+
 2022-12-07 | [A great egret in Everglades National Park, Florida (© Troy Harrison/Getty Images)](https://cn.bing.com/th?id=OHR.GreatEgret_EN-US1489292796_UHD.jpg) 
 
 2022-12-06 | [Saint Nicholas Day in Verbier, Switzerland (© Denis Balibouse/Reuters)](https://cn.bing.com/th?id=OHR.StNick_EN-US1370158441_UHD.jpg) 
