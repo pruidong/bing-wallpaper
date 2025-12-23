@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-12-24 | [Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ReindeerFinland_EN-US5636971050_UHD.jpg) 
+
 2025-12-23 | ['The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)](https://cn.bing.com/th?id=OHR.NutcrackerAnkara_EN-US5537620581_UHD.jpg) 
 
 2025-12-21 | [Christmas star lanterns, Germany (© artas/Getty Images)](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg) 
