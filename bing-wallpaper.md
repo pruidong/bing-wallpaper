@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-08-12 | [Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)](https://cn.bing.com/th?id=OHR.ColorfulCop_EN-US3993977654_UHD.jpg) 
+
 2026-08-10 | [Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)](https://cn.bing.com/th?id=OHR.JMTjibaou_EN-US3454380257_UHD.jpg) 
 
 2026-08-09 | [Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)](https://cn.bing.com/th?id=OHR.StocktonInfinity_EN-US3006724421_UHD.jpg) 
